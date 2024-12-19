@@ -1,7 +1,5 @@
 # <a href="https://bit.ly/ajansvipgiris">İstanbul Eskort GİRİŞ TIKLA</a>
 
-<a href="https://bit.ly/ajansvipgiris"><img src="https://github.com/user-attachments/assets/d5348f0b-b8ef-40c4-91fe-8b2060ea6bb1" alt="ajans vip istanbul eskort" border="0" /></a>
-
 # AjansVIP: İstanbul'un Tüm İlçelerinde Escort Hizmeti
 
 İstanbul, dünyanın en büyük ve en dinamik şehirlerinden biri olarak, kültürel zenginliği ve modern yaşam tarzıyla birçok hizmet sektörünün de gelişmesine zemin hazırlamıştır. Bu bağlamda, escort hizmetleri de İstanbul'un sosyal dokusunun bir parçası haline gelmiştir. **AjansVIP**, İstanbul'un tüm ilçelerinde yüksek kaliteli escort hizmetleri sunan öncü şirketlerden biridir.
@@ -58,3 +56,5 @@ AjansVIP, İstanbul'un tüm ilçelerinde, müşterilerine benzersiz bir escort d
 ---
 
 **AjansVIP - İstanbul'un keşfedilmemiş yüzlerinden biri!**
+
+<a href="https://bit.ly/ajansvipgiris"><img src="https://github.com/user-attachments/assets/d5348f0b-b8ef-40c4-91fe-8b2060ea6bb1" alt="ajans vip istanbul eskort" border="0" /></a>
