@@ -1,6 +1,6 @@
 # <a href="https://bit.ly/ajansvipgiris">İstanbul Eskort GİRİŞ TIKLA</a>
 
-<a href="https://ajansvip.com"><img src="https://github.com/user-attachments/assets/d5348f0b-b8ef-40c4-91fe-8b2060ea6bb1" alt="ajans vip istanbul eskort" border="0" /></a>
+<a href="https://bit.ly/ajansvipgiris"><img src="https://github.com/user-attachments/assets/d5348f0b-b8ef-40c4-91fe-8b2060ea6bb1" alt="ajans vip istanbul eskort" border="0" /></a>
 
 # AjansVIP: İstanbul'un Tüm İlçelerinde Escort Hizmeti
 
@@ -20,12 +20,12 @@ AjansVIP, sadece fiziksel yakınlık sunmayı değil; aynı zamanda sosyal ve du
 AjansVIP, İstanbul'un hem Avrupa hem de Anadolu yakasındaki tüm ilçelerinde aktiftir. 
 
 ### Avrupa Yakası
-- <a href="https://ajansvip.com">Beşiktaş Escort</a>, <a href="https://ajansvip.com">Beyoğlu Escort</a>, <a href="https://ajansvip.com">Şişli Escort</a>, <a href="https://ajansvip.com">Bakırköy Escort</a>, <a href="https://ajansvip.com">Bahçelievler Escort</a>, <a href="https://ajansvip.com">Avcılar Escort</a>
-- <a href="https://ajansvip.com">Küçükçekmece Escort</a>, <a href="https://ajansvip.com">Başakşehir Escort</a>, <a href="https://ajansvip.com">Esenyurt Escort</a>, <a href="https://ajansvip.com">Silivri Escort</a>, <a href="https://ajansvip.com">Beylikdüzü Escort</a> ve diğer ilçeler
+- <a href="https://bit.ly/ajansvipgiris">Beşiktaş Escort</a>, <a href="https://bit.ly/ajansvipgiris">Beyoğlu Escort</a>, <a href="https://bit.ly/ajansvipgiris">Şişli Escort</a>, <a href="https://bit.ly/ajansvipgiris">Bakırköy Escort</a>, <a href="https://bit.ly/ajansvipgiris">Bahçelievler Escort</a>, <a href="https://bit.ly/ajansvipgiris">Avcılar Escort</a>
+- <a href="https://bit.ly/ajansvipgiris">Küçükçekmece Escort</a>, <a href="https://bit.ly/ajansvipgiris">Başakşehir Escort</a>, <a href="https://bit.ly/ajansvipgiris">Esenyurt Escort</a>, <a href="https://bit.ly/ajansvipgiris">Silivri Escort</a>, <a href="https://bit.ly/ajansvipgiris">Beylikdüzü Escort</a> ve diğer ilçeler
 
 ### Anadolu Yakası
-- <a href="https://ajansvip.com">Kadıköy Escort</a>, <a href="https://ajansvip.com">Üsküdar Escort</a>, <a href="https://ajansvip.com">Ataşehir Escort</a>, <a href="https://ajansvip.com">Ümraniye Escort</a>, <a href="https://ajansvip.com">Maltepe Escort</a>, <a href="https://ajansvip.com">Kartal Escort</a>
-- <a href="https://ajansvip.com">Pendik Escort</a>, <a href="https://ajansvip.com">Tuzla Escort</a>, <a href="https://ajansvip.com">Sultanbeyli Escort</a>, <a href="https://ajansvip.com">Sancaktepe Escort</a> ve diğer ilçeler
+- <a href="https://bit.ly/ajansvipgiris">Kadıköy Escort</a>, <a href="https://bit.ly/ajansvipgiris">Üsküdar Escort</a>, <a href="https://bit.ly/ajansvipgiris">Ataşehir Escort</a>, <a href="https://bit.ly/ajansvipgiris">Ümraniye Escort</a>, <a href="https://bit.ly/ajansvipgiris">Maltepe Escort</a>, <a href="https://bit.ly/ajansvipgiris">Kartal Escort</a>
+- <a href="https://bit.ly/ajansvipgiris">Pendik Escort</a>, <a href="https://bit.ly/ajansvipgiris">Tuzla Escort</a>, <a href="https://bit.ly/ajansvipgiris">Sultanbeyli Escort</a>, <a href="https://bit.ly/ajansvipgiris">Sancaktepe Escort</a> ve diğer ilçeler
 
 Hizmetlerimiz, lüks otellerden özel konutlara kadar birçok lokasyonda sunulmaktadır.
 
